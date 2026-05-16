@@ -1,2 +1,0 @@
-# CampusLink
-chachu bleh
